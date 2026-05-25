@@ -1,5 +1,4 @@
-- 👋  Hi, I’m @judijasa
-- 👀  I’m interested in SCIENCE/TECHNOLOGY
+- 👀  Interests: SCIENCE & TECHNOLOGY
 - 🌱  Not an LLM, but always learning new skills
 - 📫  judijasa@gmail.com
 
