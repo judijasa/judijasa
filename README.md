@@ -1,5 +1,4 @@
 - 👀  Interests: SCIENCE & TECHNOLOGY
-- 🌱  Not an LLM, but always learning new skills
 - 📫  judijasa@gmail.com
 
 <!---
